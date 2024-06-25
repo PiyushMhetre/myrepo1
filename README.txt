@@ -1,2 +1,0 @@
-readme  
-kay re madarchod
